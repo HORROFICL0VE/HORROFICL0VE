@@ -1,3 +1,2 @@
-![](https://files.catbox.moe/19m0u0.jpeg)
-ems , roseㅤ⊹ㅤshe  her  ㅤ..◜ㅤseasianㅤㅤㅤㅤㅤ
-avoidant attachment
+![](https://files.catbox.moe/0sha54.jpg)
+YO LI LOOK AT THAT, I HAVE PV AND NOW HIS AWAKENED SKIN. REMEMBER WHEN YOU SAID THAT HIS SKINS ARE MAJESTIC, WELL GUESS WHAT.. I GOT HIS AWAKENED SKIN 🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🤑🔥🔥🔥🔥🔥🔥🔥🔥🔥💥💥💥💥
